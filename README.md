@@ -8,3 +8,8 @@ ghdcvghdjscvhdv vsdhfvbcfdhjvbdhfbv
 hjbvhdsbfkjdk\dhbj
 hjbewb
 fbfjbewjew
+bdcdcN
+NDCKDC
+NWKDCWD
+NACljdcld
+kcsdcsk
